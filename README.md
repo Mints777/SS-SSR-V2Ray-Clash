@@ -1,4 +1,4 @@
-#    **SS-SSR-V2Ray-clash-Qv2Ray**
+#    **SS-SSR-V2Ray-clash-Qv2Ray-教程-机场推荐-**
 
 
 
@@ -10,7 +10,7 @@
 
 ####   **①NSFWcloud （原百草园）**
 
- **10元128G起，高速稳定，抗GFW封锁，无倍率节点！ Vip2半年付及以上用户提供Apple ID**
+ **10元128G起，高速稳定，抗GFW封锁，无倍率节点！ 最近更换运营团队，线路质量相对之前会有大幅度提升**
  
 **[官网①](https://bit.ly/3iqW4Wf)|  [官网②](https://nsfwcloud.com/auth/register?code=ym7L)**
 
@@ -65,10 +65,11 @@
 
 ### Windows ： https://github.com/Mints777/Windows
 ### iOS ： https://github.com/Mints777/IOS
-###  教程汇总 ： https://telegra.ph/%E4%BD%BF%E7%94%A8%E6%96%87%E6%A1%A3-10-30
+### 教程汇总 ： https://telegra.ph/%E4%BD%BF%E7%94%A8%E6%96%87%E6%A1%A3-10-30
 
 
-### **客户端： ######Android版######**
+### **客户端：
+ ######Android版######**
 
 **SS： https://github.com/shadowsocks/shadowsocks-android/releases**
 
