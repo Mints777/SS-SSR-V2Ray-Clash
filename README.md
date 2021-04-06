@@ -25,13 +25,13 @@
 **8元50G起，体验低倍率iplc不过墙专线，全中转线路，1G带宽。更有阿根廷、土耳其、巴西、印度、菲律宾、德国、波兰、荷兰等稀有节点。苹果ID、奈飞会员共享。注册即可白嫖3天。pornhub永久会员帐号(需要vip5用户)40一个月套餐就可以查看，还提供emby专属帐号**
 **走我链接有1元的初始资金~**
 
-**[官网①](https://www.techonboard.tech/auth/register?code=Y8TD)   |   [官网②](https://bit.ly/3dPQAmo)**
+**[官网①](https://bit.ly/3dPQAmo)   |   [官网②](https://猫熊.xyz/auth/register?code=8IM4)**
 
 ####    **④ TNT**
 
  **3元30G，6元200G，0.1倍率的AGA超高速节点，轻量用户的首选！（据说支持免流）**
 
-  **[官网①](https://tntv2.xyz/auth/register?code=z6fT)  |  [官网②](https://bit.ly/2FgqcoV)**
+  **[官网①](https://tntv2.com/auth/register?code=z6fT)  |  [官网②](https://bit.ly/2FgqcoV)**
 
 ####   **⑤ 小柴加速**
 
@@ -39,18 +39,33 @@
 
    **[官网①](https://admin.dogvpn.me/auth/register?code=umb4)   |   [官网②](https://bit.ly/3pquHPY)**
 
-#### **⑥ 佛跳墙**
+#### **⑥sparkcloud**
+
+ **高速便宜最低8.88起，高速稳定小众的机场~
+ 因为是小众机场，相对来说人数不多，使用会相对更加稳定~**
+ **有什么要求可以进TG群跟老板说~超好说话的~**
+
+   **[官网①](https://sparkcloud.xyz/#/register?code=XOjWHfQb)   |   [官网②](https://sparkcloud.xyz/#/register?code=SO4CoMHo)**
+   
+#### **⑦ 佛跳墙**
 
  **最低20元起，不限流量，不限速度，支持各种流媒体解锁，全球优化线路，更有多个平台定制的专属客户端，实现一键连接~**
 
   **[官网①](https://admin.ftq.services/auth/register?code=Wts2)  |  [官网②](https://bit.ly/3kfF1GI)**
 
-#### **⑦cordcloud（老板娘）**
+#### **⑧cordcloud（老板娘）**
 
 **香港日本线路很多，稳定性中等吧，人数太多，总有部分线路连不上，不过还是有很多线路表现还不错，毕竟便宜，备用可以。**
 
   **[官网①](https://www.cordcloud.biz/auth/register1?code=Wrf5S9nVY14AbmjMohWfwx7QVDSKqLIA)  |  [官网②](https://www.cordcloud.biz/auth/register1?code=eUi1DSFLaAnbhsiJMCKLXtpSpfw1gcrB)  |  [官网③](https://www.cordcloud.biz/auth/register1?code=ZQWMz75N9cY5W3CSvh3VA8MWTCNbmBdh)**  
 
+
+
+#### 附上本人自己写的教程，希望能帮助到大家~
+
+### Windows ： https://github.com/Mints777/Windows
+### iOS ： https://github.com/Mints777/IOS
+###  教程汇总 ： https://telegra.ph/%E4%BD%BF%E7%94%A8%E6%96%87%E6%A1%A3-10-30
 
 
 ### **客户端： ######Android版######**
