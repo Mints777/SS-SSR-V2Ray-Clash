@@ -39,19 +39,16 @@
 
    **[官网①](https://admin.dogvpn.me/auth/register?code=umb4)   |   [官网②](https://bit.ly/3pquHPY)**
 
-#### **⑥sparkcloud**
+#### **可乐云 （收购了⑥sparkcloud）**
 
- **高速便宜最低8.88起，高速稳定小众的机场~
- 因为是小众机场，相对来说人数不多，使用会相对更加稳定~**
+ **高速便宜最低10.88起，无限流量 稳定小众的机场，注册可领全节点试用套餐。
+  10.88元/256G/月               18.88元/512G/月     
+  30.88元/1024G/月
+  糖果屋专属优惠码：mints75 **
  **有什么要求可以进TG群跟老板说~超好说话的~**
 
    **[官网①](https://sparkcloud.xyz/#/register?code=XOjWHfQb)   |   [官网②](https://sparkcloud.xyz/#/register?code=SO4CoMHo)**
    
-#### **⑦ 佛跳墙**
-
- **最低20元起，不限流量，不限速度，支持各种流媒体解锁，全球优化线路，更有多个平台定制的专属客户端，实现一键连接~**
-
-  **[官网①](https://admin.ftq.services/auth/register?code=Wts2)  |  [官网②](https://bit.ly/3kfF1GI)**
 
 #### **⑧cordcloud（老板娘）**
 
@@ -63,8 +60,7 @@
 
 #### 附上本人自己写的教程，希望能帮助到大家~
 
-### Windows ： https://github.com/Mints777/Windows
-### iOS ： https://github.com/Mints777/IOS
+### https://help.mints7.cc
 ### 教程汇总 ： https://telegra.ph/%E4%BD%BF%E7%94%A8%E6%96%87%E6%A1%A3-10-30
 
 
