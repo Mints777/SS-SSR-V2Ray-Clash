@@ -18,14 +18,10 @@
 #### ② Blinkload
 
 **经营了几年的老站了，有自己的客户端跟面板，专线为主。
-
-pro：200G/月   199.9hkd/季  299.9hkd/半年   499.9hkd/年；400G/ 月   699hkd/年；800G/月 999hkd/年。
-
-lite：100G/月  69.9hkd/月  169.9hkd/季  249.9hkd/半年  399.9hkd/年。
-
-micro：50G/月  39.9hkd/月  79.9hkd/季  159.9/半年  299.9hkd/年。
-
-busines：1000G/月  2888hkd/年；1500G/月  3888hkd/年 （该套餐增加了anycast节点）**
+**pro：200G/月   199.9hkd/季  299.9hkd/半年   499.9hkd/年；400G/ 月   699hkd/年；800G/月 999hkd/年。
+**lite：100G/月  69.9hkd/月  169.9hkd/季  249.9hkd/半年  399.9hkd/年。
+**micro：50G/月  39.9hkd/月  79.9hkd/季  159.9/半年  299.9hkd/年。
+**busines：1000G/月  2888hkd/年；1500G/月  3888hkd/年 （该套餐增加了anycast节点）**
 **[官网：点击跳转](https://blinkload.to/aff/WLPX)   |**
 
 
