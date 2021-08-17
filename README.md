@@ -98,7 +98,7 @@
 
 **最低18.8一季，套餐赠送奈飞账号，一直都很稳。主站跟分站合并了，主要是单线中转，速度还可以，也比较便宜。有专门的游戏节点跟0倍率的公益节点。**
 
-**[官网①](https://tntv2.com/auth/register?code=z6fT) | [官网②](https://bit.ly/2FgqcoV)**
+**[官网①](https://fnf.one/auth/register?code=EFWo) | **
 
 
 
