@@ -90,7 +90,7 @@
 
 **苹果ID、奈飞会员共享。pornhub永久会员帐号(需要vip5用户)40一个月套餐就可以查看，还提供emby专属帐号。走我链接有1元的初始资金~**
 
-**[官网①](https://bit.ly/3dPQAmo) | [官网②](https://xn--2vxr8a.xyz/auth/register?code=8IM4)**
+**[官网①](https://bit.ly/37P5y9N) | [官网②](https://mxwljsq.com/auth/register?code=8IM4)**
 
 
 
@@ -98,7 +98,7 @@
 
 **最低18.8一季，套餐赠送奈飞账号，一直都很稳。主站跟分站合并了，主要是单线中转，速度还可以，也比较便宜。有专门的游戏节点跟0倍率的公益节点。**
 
-**[官网①](https://fnf.one/auth/register?code=EFWo) | **
+**[官网①](https://fnf.one/auth/register?code=EFWo) | [官网②](https://bit.ly/37TETIY)**
 
 
 
@@ -106,7 +106,7 @@
 
 **10元128G起，高速稳定，抗GFW封锁，无倍率节点！ 最近更换运营团队，线路质量相对之前会有大幅度提升**
 
-**[官网①](https://bit.ly/3iqW4Wf)| [官网②](https://nsfwcloud.com/auth/register?code=ym7L)**
+**[官网①](https://bit.ly/3iQPwmd)| [官网②](https://baicao.link//auth/register?code=ym7L)**
 
 
 
@@ -114,7 +114,7 @@
 
 **25元不限流量，免流&IPV6&教育网优化走我链接有2.33元的初始资金~**
 
-**[官网①](https://www.mihoyo.ga/auth/register?code=Y8TD) | [官网②](https://bit.ly/33meDEA)**
+**[官网①](https://www.mihoyo.ga/auth/register?code=Y8TD) | [官网②](https://bit.ly/3gdCP37)**
 
 
 
@@ -123,7 +123,7 @@
 **高速便宜最低10.88起，无限流量 稳定小众的机场，注册可领全节点试用套餐。** **10.88元/256G/月 18.88元/512G/月**
 **30.88元/1024G/月** **糖果屋专属优惠码：mints75** **有什么要求可以进TG群跟老板说~~超好说话的~~**
 
-**[官网①](https://kelecloud.xyz/#/register?code=AxoRYugD) | [官网②](https://xn--fjqzfu8n.xyz/#/register?code=J64HVJ7H)**
+**[官网①](https://kelecloud.xyz/#/register?code=AxoRYugD) | [官网②](https://bit.ly/37RpHMB)**
 
 
 
