@@ -131,7 +131,7 @@
 
 **港仔牌机场~最低8.9元100G起，多协议支持，无倍率节点，并且提供Emby。有特殊地区需求的建议购买V2或以上套餐.机场主要喜欢折腾，如果不折腾是真的稳(毕竟本身是idc，资源多)**
 
-**[官网①](https://prprcloud.moe/aff.php?aff=45)**
+**[官网：点击跳转](https://prprcloud.moe/aff.php?aff=45)**
 
 
 
@@ -148,7 +148,7 @@
 
 **香港日本线路很多，稳定性中等吧，人数太多，总有部分线路连不上，不过还是有很多线路表现还不错，毕竟便宜，备用可以。**
 
-**[官网①](https://www.cordcloud.biz/auth/register1?code=Wrf5S9nVY14AbmjMohWfwx7QVDSKqLIA) | [官网②](https://www.cordcloud.biz/auth/register1?code=eUi1DSFLaAnbhsiJMCKLXtpSpfw1gcrB) | [官网③](https://www.cordcloud.biz/auth/register1?code=ZQWMz75N9cY5W3CSvh3VA8MWTCNbmBdh)**
+**[官网：点击跳转](https://www.cordcloud.one/auth/register?code=wLp6) | **
 
 
 
