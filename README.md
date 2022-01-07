@@ -62,7 +62,7 @@
 
 **运营了挺久时间了，速度还不错，总共 60 + 节点，全线电信入口 IEPL，游戏线路 AIA。**
  
- **[官网：点击跳转](https://portal.altas.cloud/auth/register?code=KGcP)      |**
+ **[官网：点击跳转](https://flexlinex.com/auth/register?code=KGcP)      |**
 
 
 
@@ -123,7 +123,7 @@
 **高速便宜最低10.88起，无限流量 稳定小众的机场，注册可领全节点试用套餐。** **10.88元/256G/月 18.88元/512G/月**
 **30.88元/1024G/月** **糖果屋专属优惠码：mints75** **有什么要求可以进TG群跟老板说~~超好说话的~~**
 
-**[官网①](https://kelecloud.xyz/#/register?code=AxoRYugD) | [官网②](https://bit.ly/37RpHMB)**
+**[官网①](https://xn--fjqzfu8n.xyz/#/register?code=AxoRYugD) | [官网②](https://bit.ly/37RpHMB)**
 
 
 
@@ -139,7 +139,7 @@
 
 **3元30G，6元200G，0.1倍率的AGA超高速节点，轻量用户的首选！（据说支持免流）**
 
-**[官网①](https://tntv2.com/auth/register?code=z6fT) | [官网②](https://bit.ly/2FgqcoV)**
+**[官网①](https://tntv2.xyz/auth/register?code=z6fT) | [官网②](https://bit.ly/3zGf4JB)**
 
 
 
