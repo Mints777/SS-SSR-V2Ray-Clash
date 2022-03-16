@@ -157,7 +157,7 @@ Lite：4999元/年，每月1.2T流量
 Pro：5999元/年，每月1.2T流量
 Unlimited：19999元/年，每月1.2T流量**
 
-**[官网：点击跳转](https://naixii.com/signupbyemail.aspx?MemberCode=594a0bd06c91428db19e64c9c01bd3c920210617023219) | **
+**[官网：点击跳转](https://naixii.com/signupbyemail.aspx?MemberCode=594a0bd06c91428db19e64c9c01bd3c920210617023219)|**
 
 
 
@@ -172,7 +172,7 @@ Unlimited：19999元/年，每月1.2T流量**
 
 **专线访问：1000G/月，104.99/季，199.99元/半年，374.99元/年**
 
-**[官网：点击跳转](https://ca.bitznet.app/#/register?code=zqAMW7f1) | **
+**[官网：点击跳转](https://ca.bitznet.app/#/register?code=zqAMW7f1)|**
 
 
 #### 附上本人自己写的教程，希望能帮助到大家~
