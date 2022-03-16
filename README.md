@@ -131,7 +131,7 @@
 
 **港仔牌机场~最低8.9元100G起，多协议支持，无倍率节点，并且提供Emby。有特殊地区需求的建议购买V2或以上套餐.机场主要喜欢折腾，如果不折腾是真的稳(毕竟本身是idc，资源多)**
 
-**[官网：点击跳转](https://prprcloud.moe/aff.php?aff=45)**
+**[官网：点击跳转](https://console.prprcloud.moe/aff.php?aff=45)**
 
 
 
@@ -139,7 +139,7 @@
 
 **3元30G，6元200G，0.1倍率的AGA超高速节点，轻量用户的首选！（据说支持免流）**
 
-**[官网①](https://tntv2.xyz/auth/register?code=z6fT) | [官网②](https://bit.ly/3zGf4JB)**
+**[官网①](http://tntv2.com/auth/register?code=z6fT) | [官网②](https://bit.ly/3zGf4JB)**
 
 
 
