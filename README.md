@@ -114,7 +114,7 @@
 
 **25元不限流量，免流&IPV6&教育网优化走我链接有2.33元的初始资金~**
 
-**[官网①](https://www.mihoyo.ga/auth/register?code=Y8TD) | [官网②](https://bit.ly/3gdCP37)**
+**[官网①](https://bit.ly/3u1z9b0) | [官网②](https://www.hnyhgl.com/auth/register?code=Y8TD)**
 
 
 
@@ -144,11 +144,17 @@
 
 
 
-### **①③ cordcloud（老板娘）**
+### **①③ Nexitally**
 
-**香港日本线路很多，稳定性中等吧，人数太多，总有部分线路连不上，不过还是有很多线路表现还不错，毕竟便宜，备用可以。**
+**佩奇家主站，一家全线中转线路的高端机场，成立大概三年多了，机场主也比较佛系，机场是他们公司副业。全部线路已全部更换为 Anycast 接入，新增国内 Azure。
+基础套餐：500G/月，106元/月，约549元/半年，约999元/年
+轻量套餐：200G/月，55元/月，285元/半年，520元/年，限量提供
+商务套餐：
+Lite：4999元/年，每月1.2T流量
+Pro：5999元/年，每月1.2T流量
+Unlimited：19999元/年，每月1.2T流量**
 
-**[官网：点击跳转](https://www.cordcloud.one/auth/register?code=wLp6) | **
+**[官网：点击跳转](https://naixii.com/signupbyemail.aspx?MemberCode=594a0bd06c91428db19e64c9c01bd3c920210617023219) | **
 
 
 
