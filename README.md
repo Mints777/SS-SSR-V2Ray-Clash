@@ -30,7 +30,7 @@ Unlimited：19999元/年，每月1.2T流量**
 不仅有常用的香港,新加坡,台湾,美国,日本
 更有各种稀有节点:澳洲,印度,德国,法国,波兰,荷兰,西班牙,俄罗斯,冰岛,丹麦,加拿大,英国等节点**
 
-**[官网:点击跳转](https://immtel.com/aff.php?aff=207) |**
+**[官网:点击跳转](https://fuckimm.com/aff.php?aff=207) |**
 
 
 ### ③ Blinkload
@@ -59,7 +59,7 @@ Unlimited：19999元/年，每月1.2T流量**
 
 **上海天翼云和精品网线路，速度不错，最近下套，速度理论会提升~**
  
-**[官网：点击跳转](https://flowercloud.net/aff.php?aff=152)     |**
+**[官网：点击跳转](https://flower.yt/aff.php?aff=152)     |**
 
 
 
@@ -150,7 +150,7 @@ Unlimited：19999元/年，每月1.2T流量**
 **高速便宜最低10.88起，无限流量 稳定小众的机场，注册可领全节点试用套餐。** **10.88元/256G/月 18.88元/512G/月**
 **30.88元/1024G/月** **糖果屋专属优惠码：mints75** **有什么要求可以进TG群跟老板说~~超好说话的~~**
 
-**[官网①](https://xn--fjqzfu8n.xyz/#/register?code=AxoRYugD) | [官网②](https://bit.ly/37RpHMB)**
+**[官网①](https://my.kelecloud.xyz/#/register?code=AxoRYugD) | [官网②](https://bit.ly/37RpHMB)**
 
 
 
@@ -166,7 +166,7 @@ Unlimited：19999元/年，每月1.2T流量**
 
 **3元30G，6元200G，0.1倍率的AGA超高速节点，轻量用户的首选！（据说支持免流）**
 
-**[官网①](http://tntv2.com/auth/register?code=z6fT) | [官网②](https://bit.ly/3zGf4JB)**
+**[官网①](https://tntv2.cyou/auth/register?code=z6fT) | [官网②](https://bit.ly/3zGf4JB)**
 
 
 
